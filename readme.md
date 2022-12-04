@@ -35,4 +35,3 @@ Aqui você pode ver todos os meus contatos. Me chama lá quando quizer.
 Discord: id: 895663660154892289 | nome/tag: Guilherme឵឵឵#0001
 Email: iimaxxiguilham@gmail.com
 ```
-
